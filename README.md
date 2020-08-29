@@ -1,5 +1,5 @@
 # MissJackson
-## Climbing out the back door, didn't leave a mark. No one knows it's you, Miss Jackson. Found another victim. But no one's gonna find. Miss Jackson 
+## Climbing out the back door, didn't leave a mark. No one knows it's you, Miss Jackson. Found another victim. But no one's gonna find. Miss Jackson!
 You put a sour little flavor in my mouth now
 You move in circles, hoping no one's gonna find out
 But we're so lucky
